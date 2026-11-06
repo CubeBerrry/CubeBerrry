@@ -1,4 +1,4 @@
-# Hi, I'm Kourvaki Singh 👋
+# Hi, I'm Kourvaki Singh 
 
 ### Computer Science Engineering Student | IIIT Kottayam
 
